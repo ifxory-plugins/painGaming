@@ -8,12 +8,12 @@
   * [CookieCat2236](vk.com/id0) ***Модератор клана***
   * [moderi_loxi](vk.com/witwarich) ***Мл. модератор клана***
   И участники(список может являться неактуальным и обновляется не ежедневно).
-  * [4ept]
-  * [alexeyfog] 
-  * [кеша] 
-  * [lena14lolkek] 
-  * [cookieman2236] 
-  * [ahegaofacehentai] 
-  * [redguk]
-  * [veronikalive] 
-  * [_piyavka_]
+  * **4ept**
+  * **alexeyfog** 
+  * **кеша**
+  * **lena14lolkek**
+  * **cookieman2236**
+  * **ahegaofacehentai**
+  * **redguk**
+  * **veronikalive]**
+  * **_piyavka_**

@@ -1,1 +1,1 @@
-### Профиль MIKEDJ99 ![Image alt](https://github.com/ifxory-plugins/painGaming/raw/gh-pages/image/crown.png)
+### Профиль MIKEDJ99 ![Image alt](https://github.com/ifxory-plugins/painGaming/raw/gh-pages/crown.png)
